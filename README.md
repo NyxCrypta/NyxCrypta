@@ -1,2 +1,2 @@
-## NyxCrypta – La Sentinelle Nocturne
-Dans les abysses les plus obscurs du cyberespace, NyxCrypta est une gardienne silencieuse, une ombre qui veille sans jamais faillir. Ses yeux voient au-delà des cryptages les plus impénétrables, et ses mains dévoilent ce qui était destiné à rester caché. Elle est la nuit incarnée, là où se trouvent les secrets que personne n’ose chercher, là où tout est vu mais rien n’est révélé.
+## NyxCrypta - The Night Sentinel
+In the darkest depths of cyberspace, NyxCrypta is a silent guardian, a shadow that never fails to keep watch. Her eyes see beyond the most impenetrable encryptions, and her hands reveal what was destined to remain hidden. She is night incarnate, where secrets lie that no one dares to seek, where everything is seen but nothing is revealed.
